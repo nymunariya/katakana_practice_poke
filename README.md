@@ -1,0 +1,1 @@
+# katakana_practice_pokemon
